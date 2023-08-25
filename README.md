@@ -7,6 +7,8 @@
 
 ## "Try to survive to this World"
 
+| Question | Answer |
+| ----------- | ----------- |
 | Birthday | 08/07 |
 | Favorite color | <span style="color: #87CEFA;"> Sky Blue </span>
 | Favorite food | Briany|
