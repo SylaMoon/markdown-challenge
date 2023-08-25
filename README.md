@@ -28,7 +28,7 @@
 - This could be technical, making people feel comfortable, being an organiser this is for why I would do my best every day !
 
 ## Fun Fact Story
-- One time a search all day my phone because I was scared of my mom find out it. Finaly, I call her tot tell the true and guess what? 
+- One time a search all day my phone because I was scared of my mom find out it. Finaly, I call her to tell the true and guess what? 
 I CALL HER !!!
 
 #### TL;DR 
