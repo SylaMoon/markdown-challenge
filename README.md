@@ -32,7 +32,7 @@
 I CALL HER !!!
 
 #### TL;DR 
-### Ican be so dump sometime ( PS: alot) and need time to digest information! 
+### I can be so dump sometime ( PS: alot) and need time to digest information! 
 
 
 << [previous](https://github.com/LRI-2020/markdown-challenge/)  || TARA MARIE || [next](https://github.com/AlexandreVDW/markdown-challenge) >>
